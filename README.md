@@ -1,4 +1,5 @@
 # Blooket.Hacks
+Adding new blooket hacks every day! Comment ones you want, and they will be added!
 These are blooket hacks to never lose again! THIS VIOLATES THE BLOOKET TERMS OF SERVICE! PRIVATE USE ONLY
 I am not promoting nor using these cheats to my advantage. I have these posted for personal and use with friends only
 These Violate TOS. I am not responsible for any form of ban or punishment
